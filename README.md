@@ -5,7 +5,7 @@
 
 ** 主要地址：<a href="https://74mao.com/">74猫传送门</a>
 
-点击访问：七四猫福利导航<a href="https://74mao.com/">（74mao.com）</a>
+点击访问：<a href="https://74mao.com/">（74mao.com）</a>
 
 点击访问：<a href="https://74mao.com/">74猫导航主站</a>
 
